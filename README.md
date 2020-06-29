@@ -1,2 +1,0 @@
-# sieuvinano.github.io
-sieuvinano
